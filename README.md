@@ -1,6 +1,6 @@
-免费节点适合临时翻墙使用，如需高速稳定的IPLC专线节点，推荐注册[TomCat](https://vhdqxqlcxese-evkvbvldzojl.24412603170077798173.top/)，8K高清视频秒开起飞，[点击注册](https://vhdqxqlcxese-evkvbvldzojl.24412603170077798173.top/)
+免费节点适合临时翻墙使用，如需高速稳定的IPLC专线节点，推荐注册[TomCat](https://vhdqxqlcxese-evkvbvldzojl.24412603170077798173.top/#/register?code=KSpHwobl)，8K高清视频秒开起飞，[点击注册](https://vhdqxqlcxese-evkvbvldzojl.24412603170077798173.top/#/register?code=KSpHwobl)
 
-[![TomCat](/tomcat.png "Shiprock")](https://vhdqxqlcxese-evkvbvldzojl.24412603170077798173.top/)
+[![TomCat](/tomcat.png "Shiprock")](https://vhdqxqlcxese-evkvbvldzojl.24412603170077798173.top/#/register?code=KSpHwobl)
 
 SS / SSR / V2Ray节点。长期更新，长期有效，帮助更多用户免费地连接到世界互联网。节点流量充足，支持免流，可以看奈飞，因为是免费节点，速度无法保证。
 
